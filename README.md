@@ -5,8 +5,6 @@ This is the first file in this repo
 
 ## Ipsum Below
 
-maiiaiiamijfd dat is hier 
-een beetj tekst blablabla
+here are the files in the website
 
-
-dlkfmqjfmoehi
+1. index
