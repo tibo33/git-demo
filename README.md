@@ -10,6 +10,3 @@ een beetj tekst blablabla
 
 
 dlkfmqjfmoehi
-qsmdfjmqsdjfmoj
-moiehfmoidj
-mioqefmihqdf
