@@ -7,3 +7,9 @@ This is the first file in this repo
 
 maiiaiiamijfd dat is hier 
 een beetj tekst blablabla
+
+
+dlkfmqjfmoehi
+qsmdfjmqsdjfmoj
+moiehfmoidj
+mioqefmihqdf
